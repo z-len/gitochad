@@ -12,4 +12,4 @@
 Эта строчка была добавлена в локальном репозитории. 
 Эта инфа была добавлена в удаленном репозитории.
 
-![heide_knight](https://cdn.discordapp.com/attachments/578221595194294335/1047594604884656248/unknown.png)
+![hahahaha_cats](https://media.discordapp.net/attachments/578221595194294335/1047486691696447558/unknown.png?width=477&height=473)
